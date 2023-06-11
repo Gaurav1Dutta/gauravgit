@@ -1,2 +1,2 @@
 # gauravgit
- for collage use
+ For Projects And Activities
